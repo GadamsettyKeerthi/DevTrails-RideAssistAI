@@ -124,4 +124,4 @@ Benefits:
 Delivery workers are essential to modern urban life but face constant financial uncertainty due to fluctuating earnings. The Income Stabilizer Wallet offers a proactive and intelligent solution by ensuring consistent income through smart saving and automated support.
 By combining automation, prediction, and simplicity, this system empowers workers like Arjun to maintain financial stability, reduce stress, and work with confidence—without relying on complex or delayed compensation systems.
 
-
+Youtube Video: https://youtu.be/9tTvs9oksv4?si=DRfjlvaCIpygsbtB
